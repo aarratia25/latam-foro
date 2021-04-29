@@ -2,4 +2,4 @@
 
 Be part of this ...
 
-https://chat.whatsapp.com/FjJn2rFFFL6CVgYorVbJBx
+https://chat.whatsapp.com/Ku9yleuppB0Gd05Iqarli0
