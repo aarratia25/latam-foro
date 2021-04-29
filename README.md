@@ -1,1 +1,1 @@
-# latam-foro
+# latam-forum
